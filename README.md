@@ -1,2 +1,4 @@
 # newtonapple_J
-https://github.com/lsgjeongeunjo/newtonapple_J/issues/1#issue-3580327821
+
+
+<img width="563" height="289" alt="Image" src="https://github.com/user-attachments/assets/4887030f-3640-4759-8506-62bca92c232b" />
